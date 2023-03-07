@@ -1,5 +1,6 @@
 # TATSIANA ZIAMLIKOVA
 
+![photo](/photo-tz.jpg)
 ## CONTACT ME:
 * Phone: +375-29-328-24-44     
 * E-mail: 1zemliakova@gmail.com  
